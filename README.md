@@ -1,20 +1,24 @@
-# Infosys-and-BSC
+https://open.spotify.com/playlist/7ihMjetICZGO8wxr65fJmx
 
 
-Greetings Shanice,
 
-I am pleased to inform you that your ticket with reference number INC000000311473 has been successfully resolved. As evidence of the resolution, I have attached the necessary images.
+https://open.spotify.com/playlist/0pyHVjbjiyuutRjtP3hvNY
 
-Please do not hesitate to contact me if you have any further questions or concerns. I am always here to assist you in any way possible.
 
-Thank you for your valuable support during this process.
 
-Best Regard, Jorge Raya. Greetings Shanice,
 
-I am pleased to inform you that your ticket with reference number INC000000311473 has been successfully resolved. As evidence of the resolution, I have attached the necessary images.
+https://open.spotify.com/playlist/4WfjP4PrEEzSdtz1M46BXm
 
-Please do not hesitate to contact me if you have any further questions or concerns. I am always here to assist you in any way possible.
 
-Thank you for your valuable support during this process.
 
-Best Regard, Jorge Raya.
+
+
+https://open.spotify.com/playlist/4hOKQuZbraPDIfaGbM3lKI
+
+
+https://open.spotify.com/playlist/37i9dQZF1DX0b1hHYQtJjp
+
+
+
+
+https://open.spotify.com/playlist/37i9dQZF1DXcBWIGoYBM5M
